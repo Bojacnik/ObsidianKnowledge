@@ -3,7 +3,7 @@ Povinné hodinny, omlouvat překážky v systému a pak nepsat ona to uvidi
 Konzultace ve čtvrtky a pisemky nahrazovat tak ze napisu maila a ve ctvrtek se domluvim na termín ideálně ji ho uz napsat
 
 Pisemky
-2 23.9.
+2 23.9. hronerovo schema du sada 1 příkldy 7 e)f) prinest papir (mozna přímky z prvni sady)
 4. 7.10
 6.21.10
 9.11.11
